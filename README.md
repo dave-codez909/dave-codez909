@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me @harrisondavid 
+- 📫 How to reach me @uzoechidaid09@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
